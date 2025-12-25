@@ -36,7 +36,7 @@ Open to **Full-Time / Internship / Contract** roles as a
 
 ## 🔗 Connect With Me
 - GitHub: https://github.com/arun777-re  
-- LinkedIn: *(add your LinkedIn profile here)*
+- LinkedIn:www.linkedin.com/in/arun-jamdagni-20bb93268
 
 
 ⭐ I enjoy building real-world products, learning from user feedback, and continuously improving my engineering skills.
